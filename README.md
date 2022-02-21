@@ -20,6 +20,9 @@ Your Azure Pass number: Q7FM7EK06Z1SB421KT (do not access prior to class)
 DDLS Training Centre
 https://ddls.learnondemand.net/
 
+U: lachlan.norris@qsuper.qld.gov.au
+P: MPNZh47kepEhM$w
+
 
 DDLS Training Key:
 
