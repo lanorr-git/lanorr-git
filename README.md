@@ -16,3 +16,11 @@ Your Skillpipe licence number: IVUG-WLNM-JSHK-PQOG
 
 Your Azure Pass number: Q7FM7EK06Z1SB421KT (do not access prior to class)
 
+
+DDLS Training Centre
+https://ddls.learnondemand.net/
+
+
+DDLS Training Key:
+
+65E6FBB589CA49BE
